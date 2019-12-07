@@ -1,1 +1,0 @@
-# KdshKAkik.github.io
